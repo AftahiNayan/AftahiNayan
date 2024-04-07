@@ -1,6 +1,4 @@
-(https://scontent.fzyl2-1.fna.fbcdn.net/v/t39.30808-6/284508094_1737002376652165_1134958307629254014_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeGSAVa0ED2gU3xbffNcpKFcZ9xp1NGPnQpn3GnU0Y-dCiIUdGUnGeib00LHwmW9zkHXmaTnjrsj2nGv27z3_91I&_nc_ohc=d9NmbcFYJzcAb4i7_El&_nc_ht=scontent.fzyl2-1.fna&oh=00_AfD0CZfppUBLyfeQI4OeKm-s3yelYA3e698iD83dF1iDxA&oe=661851CA)
-
-### Hi there 👋, Md. Aftahi Islam Nayan
+### Hi there 👋,This is Md. Aftahi Islam Nayan
 #### Business Operations Specialist 
 ![Business Operations Specialist ](https://scontent.fzyl2-1.fna.fbcdn.net/v/t39.30808-6/284508094_1737002376652165_1134958307629254014_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeGSAVa0ED2gU3xbffNcpKFcZ9xp1NGPnQpn3GnU0Y-dCiIUdGUnGeib00LHwmW9zkHXmaTnjrsj2nGv27z3_91I&_nc_ohc=d9NmbcFYJzcAb4i7_El&_nc_ht=scontent.fzyl2-1.fna&oh=00_AfD0CZfppUBLyfeQI4OeKm-s3yelYA3e698iD83dF1iDxA&oe=661851CA)
 

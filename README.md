@@ -15,7 +15,5 @@ Skills: Advance Excel, SQL, Python
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/https://github.com/AftahiNayan)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='40'>](https://www.linkedin.com/in/https://www.linkedin.com/in/md-aftahi-islam-nayan//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/https://www.facebook.com/aftahi.islam.3/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/https://www.instagram.com/aftahi_nayan//)  
 
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=https://github.com/AftahiNayan&show_icons=true)  
 
-![GitHub metrics](https://metrics.lecoq.io/https://github.com/AftahiNayan)  
 
